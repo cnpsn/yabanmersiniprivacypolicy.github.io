@@ -1,0 +1,1 @@
+# yabanmersiniprivacypolicy.github.io
